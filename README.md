@@ -1,0 +1,2 @@
+# 93917f1b-812a-4081-b019-24313a9039e1-hero-2
+Hero section variant 2 for 93917f1b-812a-4081-b019-24313a9039e1
